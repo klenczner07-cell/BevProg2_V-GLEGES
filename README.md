@@ -1,1 +1,1 @@
-# BevProg2_V-GLEGES
+# BevProg2_VÉGLEGES
